@@ -1,4 +1,4 @@
-
+![my picture](Untitled150_20260927142215.png)
 
 <!--
 **1lsvnr/1lsvnr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
