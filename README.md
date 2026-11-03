@@ -1,5 +1,5 @@
 @⠀𝗅𝗂 / 𝖺𝗋𝖾𝗌   ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀   ⠀ ⠀⠀⠀⠀ ⠀   ⠀  ⠀⠀⠀⠀⠀⠀⠀⠀ ⠀   ⠀  ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ 𝘤 + 𝘩 ![my picture](adf18e52335a05fcc0e2d939d37f1181.jpg)   ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ 
-⠀ ⠀⠀𝗐2𝗂 [  𝗌𝖾𝗆𝗂 𝖺𝖿𝗄  ]
+⠀ ⠀⠀𝗐2𝗂 [  i can be quite a dry person sometimes, please dont take it to heart ! ]
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀
 
 
